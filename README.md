@@ -29,7 +29,7 @@ Building clean, scalable , applications. | Committed to continuous learning and 
 
 ## 🛜 Connect With Me
 
-Let’s connect on [LinkedIn](https://linkedin.com/in/YOUR-REAL-USERNAME)
+Let’s connect on [LinkedIn](https://linkedin.com/in/YOUR-REAL-USERNAME) , happy to collaborate 🚀
 
 ---
 
