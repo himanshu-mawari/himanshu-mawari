@@ -29,7 +29,7 @@ Building clean, scalable , applications. | Committed to continuous learning and 
 
 ## 🛜 Connect With Me
 
-Let’s connect on [LinkedIn](https://linkedin.com/in/YOUR-REAL-USERNAME) , happy to collaborate 🚀
+Let’s connect on [LinkedIn](https://www.linkedin.com/in/himanshu-mawari-79b621329) , happy to collaborate 🚀
 
 ---
 
